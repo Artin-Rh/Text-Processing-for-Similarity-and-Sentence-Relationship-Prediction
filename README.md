@@ -58,6 +58,6 @@ If you’d like to contribute:
 For any questions or collaboration opportunities, feel free to reach out!
 
 **Email**: [artin.rahmanian501@gmail.com](mailto:artin.rahmanian501@gmail.com)  
-**LinkedIn**: [Artin-Rahmanian](#) *(https://www.linkedin.com/in/artin-rahmanian-24a058232)*  
+**LinkedIn**: [Artin-Rahmanian](https://www.linkedin.com/in/artin-rahmanian-24a058232) 
 
 
